@@ -1,4 +1,4 @@
 # Shush
-Private.
+Idk anymore
 
 ## or is it,.,.,.,.,.,,.,.,.,....,,,.,.,.
